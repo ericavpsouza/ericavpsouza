@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ericavpsouza
+- 👀 I’m interested in learning about sustainability, data analytics and relations between both areas
+- 🌱 I’m currently learning german language and data analysis
+- 💞️ I’m looking to collaborate on how to measure environmental aspects, impacts and sustainability data analysis
